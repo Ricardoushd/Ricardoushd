@@ -1,6 +1,6 @@
-# muchas felicidades pudiste entrar al equipo
+# NOMBRE DEL EQUIPO 
 # 2020 a 2039
-# LOS QUE SÍ ENTRARON AL EQUIPO
+# LO MÁS AVANZADO
 
 # Sofia
 
