@@ -1,0 +1,39 @@
+# muchas felicidades pudiste entrar al equipo
+# 2020 a 2039
+# LOS QUE SÍ ENTRARON AL EQUIPO
+
+# Sofia
+
+# Alexander
+
+# Nicole
+
+# Jesús
+
+# Juan
+
+# Justin
+
+# Cris
+
+# celsa
+
+# Diego
+
+# Yahir
+
+# Rodrigo
+
+# blanca
+
+# sol
+
+# Danna Fernanda
+
+# Danna Juárez
+
+# RA.G
+
+# A
+
+# RD. F
