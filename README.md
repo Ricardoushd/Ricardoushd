@@ -4,7 +4,7 @@
 
 # Sofia
 
-# Alexander
+# Danna Fernanda
 
 # Nicole
 
@@ -28,9 +28,9 @@
 
 # Danna Juárez
 
-# sol
+# Alexander
 
-# Danna Fernanda
+# Sol
 
 # RA.G
 
