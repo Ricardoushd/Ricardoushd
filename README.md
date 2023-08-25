@@ -10,7 +10,7 @@
 
 # Jesús
 
-# Juan
+# Danna Juárez
 
 # Justin
 
@@ -26,7 +26,7 @@
 
 # blanca
 
-# Danna Juárez
+# Juan
 
 # Alexander
 
