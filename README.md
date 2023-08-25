@@ -28,8 +28,6 @@
 
 # sol
 
-# Danna Juárez
-
 # Danna Fernanda
 
 # RA.G
